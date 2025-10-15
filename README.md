@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Emanuel
-- 👀 I’m interested in cybersecurity, programming, and music
+- 👀 I’m interested in cybersecurity, programming, and IT
 - 🌱 I’m currently studying cybersecurity
 - 💞️ I’m looking to create new projects to show my skills
 - 📫 Reach me at emanuel.re88@gmail.com
